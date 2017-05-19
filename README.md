@@ -1,2 +1,2 @@
 # swac
-St
+Students with a cause - Spirit of Nevada Website entry
